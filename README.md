@@ -1,0 +1,1 @@
+# lekce_10_du_minutka2
